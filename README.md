@@ -1,3 +1,3 @@
 # Sample
 
-![Hot](https://ibb.co/HLjjhSdj.webp)
+![Hot](https://imgbox.com/oG4rfMn4.png)
